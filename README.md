@@ -7,4 +7,4 @@ Estou estudando na [alura ](https://www.alura.com.br/)Estou me desenvolvendo na 
 *Você* *pode* *entrar* *em* *contato* *comigo* 📫
 00001099080034sp@al.educacao.sp.gov.br 
 
-![](![como-reproduzir-gifs-animados-no-mac]
+![](https://media1.tenor.com/m/PJ4-hzHhDyEAAAAC/hi-hey.gif)
